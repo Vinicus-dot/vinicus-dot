@@ -1,5 +1,5 @@
-what's up, welcome to my profile! i am  Vinícius👋
-eae , Bem vindos ao meu perfil! Eu sou Vinícus👋
+
+Oieee, Bem vindos ao meu perfil! Eu sou Vinícus👋
 
 
 
